@@ -1,6 +1,6 @@
 # Privacy Policy — Outside Hours
 
-_Last updated: 09/11/2026
+Last updated: 09/11/2026
 
 Outside Hours is designed with your privacy as a core value.
 
